@@ -1,16 +1,33 @@
-## Hi there 👋
+# Hi 「サーモン」です 👋
 
-<!--
-**salmon0577/salmon0577** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I can speak chinese and a little japanese or english.I mainly post in JP/CN language.
 
-Here are some ideas to get you started:
+## Living area(居住地):
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+夢の自由郷
+
+
+
+## Likes(好きなもの):
+
+music,tech,anime & manga culture.And also sleeping =w=
+
+## Currently playing(やってるのゲーム):
+
+Osu & visual novel
+
+## Anime & manga i enjoy(好きのアニメと漫画タイプ):
+
+yuri/iyashikei
+
+## The following is my social media:
+
+[Bluesky](https://bsky.app/profile/salmonn.co.uk)
+
+[Twitter/X](twitter.com/salmonn0577)
+
+[osu!](https://osu.ppy.sh/users/36056794)
+
+
+## Contact / 連絡先：
+[Fill the contact form](https://forms.gle/sfQdfFMKEjiuHtLs6)
