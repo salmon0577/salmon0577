@@ -10,7 +10,7 @@ I can speak chinese and a little japanese or english.I mainly post in JP/CN lang
 
 ## Likes(好きなもの):
 
-music,tech,anime & manga culture.And also sleeping =w=
+music,tech,anime & manga culture. And also sleeping =w=
 
 ## Currently playing(やってるのゲーム):
 
@@ -18,7 +18,7 @@ Osu & visual novel
 
 ## Anime & manga i enjoy(好きのアニメと漫画タイプ):
 
-yuri/iyashikei
+yuri & iyashikei
 
 ## The following is my social media:
 
