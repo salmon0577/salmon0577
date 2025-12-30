@@ -20,7 +20,7 @@ Osu & visual novel
 
 ## Anime & manga i enjoy(好きのアニメと漫画タイプ):
 
-yuri & iyashikei
+yuri & iyashikei & guro
 
 ## The following is my social media:
 
