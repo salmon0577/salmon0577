@@ -30,6 +30,7 @@ yuri & iyashikei & guro
 
 [osu!](https://osu.ppy.sh/users/36056794)
 
+[Check my AniList](https://anilist.co/user/salmon0577)
 
 ## Contact / 連絡先：
 [Fill the contact form](https://forms.gle/sfQdfFMKEjiuHtLs6)
