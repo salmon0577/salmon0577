@@ -1,6 +1,6 @@
 # Hi 「サーモン」です 👋
 
-Student & Junior Web Developer | Building with AI assistance | Learning through every line of code.
+AI-assisted web dev student
 
 I can speak chinese and a little japanese or english.I mainly post in JP/CN language.
 
