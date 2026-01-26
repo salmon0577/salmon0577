@@ -20,7 +20,7 @@ Osu & visual novel
 
 ## Anime & manga i enjoy(好きのアニメと漫画タイプ):
 
-Yuri / Comedy / Romance // Psychological / Deconstruction / Supernatural Noir
+Yuri / Comedy / Romance / Slice of life // Psychological / Deconstruction / Supernatural Noir
 
 ## The following is my social media:
 
