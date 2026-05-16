@@ -4,9 +4,6 @@ I'm a high school student.
 
 I can speak chinese and a little japanese or english.I mainly post in JP/CN language.
 
-## Living area(居住地):
-
-夢の自由郷
 
 
 
