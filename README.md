@@ -1,6 +1,6 @@
 # Hi 「サーモン」です 👋
 
-AI-assisted web dev student
+I'm a high school student.
 
 I can speak chinese and a little japanese or english.I mainly post in JP/CN language.
 
