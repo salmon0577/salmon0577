@@ -1,4 +1,4 @@
-# Hi 「サーモン」です 👋
+# Hi
 
 I'm a high school student.
 
@@ -7,15 +7,15 @@ I can speak chinese and a little japanese or english.I mainly post in JP/CN lang
 
 
 
-## Likes(好きなもの):
+## Likes:
 
-music,tech,anime & manga culture. And also sleeping =w=
+music,tech,anime & manga culture.
 
-## Currently playing(やってるのゲーム):
+## Currently playing:
 
 Osu & visual novel
 
-## Anime & manga i enjoy(好きのアニメと漫画タイプ):
+## Anime & manga i enjoy:
 
 Yuri / Comedy / Romance / Slice of life // Psychological / Deconstruction / Supernatural Noir
 
@@ -29,5 +29,5 @@ Yuri / Comedy / Romance / Slice of life // Psychological / Deconstruction / Supe
 
 [Check my AniList](https://anilist.co/user/salmon0577)
 
-## Contact / 連絡先：
+## Contact：
 [Fill the contact form](https://forms.gle/sfQdfFMKEjiuHtLs6)
