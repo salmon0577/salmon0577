@@ -9,15 +9,15 @@ I can speak chinese and a little japanese or english.I mainly post in JP/CN lang
 
 ## Likes:
 
-music,tech,anime & manga culture.
+Music,Tech,Game,Anime & Manga Culture.
 
-## Currently playing:
+## Playing:
 
-Osu & visual novel
+Osu & Visual novel & Counter-strike & Valorant
 
 ## Anime & manga i enjoy:
 
-Yuri / Comedy / Romance / Slice of life // Psychological / Deconstruction / Supernatural Noir
+Yuri / Comedy / Slice of life / Psychological / Supernatural
 
 ## The following is my social media:
 
