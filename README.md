@@ -13,7 +13,7 @@ Music,Tech,Game,Anime & Manga Culture.
 
 ## Playing:
 
-Osu & Visual novel & Counter-strike & Valorant
+Osu & Visual novel & Counter-strike & Valorant.
 
 ## Anime & manga i enjoy:
 
